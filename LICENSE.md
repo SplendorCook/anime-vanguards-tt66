@@ -1,4 +1,4 @@
-#  
+#  anime vanguards no-ban Script is the best anime vanguards Script, featuring speed and auto-farm. Safe and powerful for all your needs.
 
 
 
